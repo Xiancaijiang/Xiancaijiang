@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @kkkk_bluu
-- 👀 I’m one student in China
+- 👀
 - 🌱 I’m currently learning how to be a robomaster.
